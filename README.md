@@ -2,7 +2,7 @@
 - 👀 I’m interested in hot oily men
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me ...
+- 📫 How to reach me is to email me. E-MAIL: bermangavin87@gmail.com
 - 😄 Pronouns: rizzler/rizzly bear/rizzard of oz
 - ⚡ Fun fact: I AM a hot oily man coming for your current location
 
